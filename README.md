@@ -3,4 +3,4 @@
 - 🌱 I’m currently exploring diff'n Tech.
 - 🔧 Favorite being automation and utility tools.
 - 🤝 I’m looking to collaborate with crazy people.
-- 📫 My [LinkedIn](https://www.linkedin.com/in/sarthak-shinde-910a00297)
+- 📫 My [LinkedIn](https://www.linkedin.com/in/shindesarthak/)
