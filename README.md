@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @sarthakshinde07
-- 👀 I’m interested in building idea to life!
-- 🌱 I’m currently exploring diff'n Tech.
+- 👀 I’m interested in revolutions!
+- 🌱 Currently exploring diff'n Tech.
 - 🔧 Favorite being automation and utility tools.
 - 🤝 I’m looking to collaborate with crazy people.
 - 📫 My [LinkedIn](https://www.linkedin.com/in/shindesarthak/)
+- 🐦‍🔥 Pronoun: Human
